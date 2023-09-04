@@ -1,2 +1,2 @@
 # Readme
-Learning from sardha di
+Learning from sardha d
